@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @skyddddddd
 - 👀 I’m interested in doing dumb stuff
-- 🌱 I’m currently learning acu (gd)
-- 💞️ I’m looking to collaborate on idk
+- 🌱 I’m currently learning how to be smart
 - 📫 How to reach me: .skydgd on discord :3
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: i'm dumb af
