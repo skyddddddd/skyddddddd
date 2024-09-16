@@ -1,7 +1,7 @@
-- 👋 Hi, I’m @skyddddddd
+- 👋 Hi, I’m katie
 - 👀 I’m interested in doing dumb stuff
 - 🌱 I’m currently learning how to be smart
-- 📫 How to reach me: .skydgd on discord :3
+- 📫 How to reach me: .katiesky on discord :3
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: i'm dumb af
 
